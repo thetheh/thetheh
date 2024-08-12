@@ -11,4 +11,5 @@ meu nome é stephany teodoro
 - 00001125804312sp@al.educacao.sp.gov.br
 
 - @imntstephany
-![](https://tenor.com/pt-BR/view/barbie-pink-gif-2541919)
+- 
+![](https://media1.tenor.com/m/yDxgngEEeY0AAAAC/barbie-pink.gif)
